@@ -1,0 +1,1 @@
+# szerz-d-skezel-
